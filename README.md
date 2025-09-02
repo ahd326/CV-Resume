@@ -1,3 +1,4 @@
 # CV-Resume
 
-[Ava DeLauro Resume 3_6_25.pdf](https://github.com/user-attachments/files/22012701/Ava.DeLauro.Resume.3_6_25.pdf)
+
+[8_30_25 Ava DeLauro Resume.pdf](https://github.com/user-attachments/files/22102539/8_30_25.Ava.DeLauro.Resume.pdf)
